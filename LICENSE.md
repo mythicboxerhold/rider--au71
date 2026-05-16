@@ -1,4 +1,4 @@
-# 
+# premium JetBrains Rider for PC | JetBrains Rider for Windows Integration | debugger + code-analysis is the best JetBrains Rider for PC | JetBrains Rider for Windows integration,
 
 
 
